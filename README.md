@@ -1,0 +1,1 @@
+# solo-aiem-hackathon-2026
